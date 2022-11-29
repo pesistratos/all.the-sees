@@ -1,1 +1,1 @@
-# all.the-sees
+# all.the-seas
